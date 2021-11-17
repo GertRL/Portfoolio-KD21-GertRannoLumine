@@ -1,0 +1,1 @@
+# Portfoolio-KD21-GertRannoLumine
